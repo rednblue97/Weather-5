@@ -36,6 +36,7 @@ N/A
 N/A
 
 ## GitHub 
-CaptureB
+rednblue97
 
 ## Email
+probablydavidgarcia97@gmail.com
